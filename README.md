@@ -84,6 +84,7 @@ https://www.youtube.com/watch?v=8eDsvKwM40U
 ### Events
 
 - [Siteworks](https://siteworks.checkfront.com/reserve/?action=clr&) Excellent creative space for hire
+- [Bitcoin FilmFest 🐰🎬](https://bitcoinfilmfest.com/) - Annual Bitcoin-only film festival exploring financial freedom through cinema. June 4-7, Warsaw, Poland.
 
 ### Screen writing
 
